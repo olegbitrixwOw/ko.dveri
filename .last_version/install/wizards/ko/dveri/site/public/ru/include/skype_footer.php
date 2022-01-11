@@ -1,0 +1,1 @@
+<a href="skype:ustanovshika_net">ustanovshika_net</a>

@@ -1,0 +1,1 @@
+<a href="mail@ustanovshika.net">mail@ustanovshika.net</a>
